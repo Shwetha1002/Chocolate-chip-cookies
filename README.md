@@ -1,0 +1,2 @@
+Have you ever looked at a jar of cookies in the restaurant and be like "Damn! I wish I knew how to make these!"? Well that ends today.
+Today, we are gonna provide to you the perfect cookie recipe you've probably ever come across. With the perfect proprtions of melted chocolate chips and godly butter this recipe is going to blow your friends socks off! So put on some gloves and an aprin- and ... LET"S GO
